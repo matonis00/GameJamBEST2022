@@ -1,1 +1,1 @@
-# BEST Game Jam 2022
+# GameJamBEST2022
